@@ -1,0 +1,10 @@
+- MARCH or MARI! 🫧
+- all prns!
+- 5teen … minor
+- ⏩
+- bigender enby
+- wlw/mlm
+- lithromantic
+- ✨
+- if you're here to start drama, i won't engage in it. sorry!
+- read rentry for more info!
