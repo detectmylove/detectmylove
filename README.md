@@ -8,3 +8,4 @@
 - ✨
 - if you're here to start drama, i won't engage in it. sorry!
 - read rentry for more info!
+- also if you recognize my user: i don't support the person! i just really like the producer :]
