@@ -1,12 +1,7 @@
-- [inactive]! 🫧
-- all prns!
-- 5teen … minor
-- ⏩
-- bigender enby
-- wlw/mlm
-- lithromantic
-- ✨
-- if you're here to start drama, i won't engage in it. sorry!
-- read rentry for more info!
-- also if you recognize my user: i don't support the person! i just really like the producer :]
-- bonus uhm. you may ask before calling me ---- or using she/her (the former is super close to my deadname and the latter is because i'm not used to it yet but i'm trying to be!)
+[ FOR PT ]
+CROW ! THEY / HE
+ENBY LESBIAN
+6TEEN (DEC 7.)
+3 . 2 . 25
+
+read byi / dni in strawpage
