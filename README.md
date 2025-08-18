@@ -4,6 +4,6 @@
 <p align="center"> things i like are the persona series, hyv games, pop-punk, and phighting.
 <p align="center"> i yumeship, but i'm also taken by my lovely partner !! 3 . 2 . 25
   
-<p align="center"> <img src="https://64.media.tumblr.com/cf3c4d869a3f0791163df3d8df79ef5d/e996abccae0ec0a1-b9/s1280x1920/19ec313ec4ad13062bbc8d097d24f01a4316a627.gifv" </p>
+<p align="center"> <img src="https://64.media.tumblr.com/af75727a9bf318e329d9fe85d04913af/747fb953865f7dc8-c2/s400x600/16c984be38a65f2d2b0a39dbdb1956c9f52cfeea.gifv" </p>
   
-[div cred 1 - kassgender](https://www.tumblr.com/kassgender/740869831392378880/thats-it-joker?source=share) [cred 2 - pink_sugar](https://www.tumblr.com/pink-sugar/741869380901699584/akechi-graphics-%F0%96%A6%B9-made-for?source=share)
+[div cred 1 - kassgender](https://www.tumblr.com/kassgender/740869831392378880/thats-it-joker?source=share) [cred 2 - twinkfrottage](https://www.tumblr.com/twinkfrottage/782676654336229376/cash-app-tip-jar?source=share)
