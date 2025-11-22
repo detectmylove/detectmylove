@@ -4,7 +4,7 @@
   
 ![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=jhmyaro1c0u18xmutf9nljjx5&count=1&width=600)
 
-<p align="center"> <img src="https://64.media.tumblr.com/c816904237541793aad726130e4f2b2d/4e3cc786b21322f7-b2/s1280x1920/a2156cd6c1751fa425036ab3bfbc4b8f0a865452.gifv" </p>
+<p align="center"> <img src="https://64.media.tumblr.com/c0185e0104a3fb331c163ff621a66f89/80c550fe6cbeeb6d-1f/s400x600/2e08d2791f9e32ba7afc59b6b2062a7b4edc1024.pnj" </p>
 <p align="center"> you may refer to me as ADRIENNE or CROW! i use they / he / prince pronouns.
 <p align="center"> things i like are the persona series, hyv games, pop-punk, and phighting.
 <p align="center"> i do yumeship, but i'm more or less okay with sharing as long as you don't talk about some of my f/o's publicly or with me (the ones in question are on my strawpage). kins of my f/o's OR people who yume my kins are still welcome to interact, if they so wish.
