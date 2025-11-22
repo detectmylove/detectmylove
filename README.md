@@ -10,7 +10,7 @@
   
 <p align="center"> <img src="https://64.media.tumblr.com/39e7f918c2a89ba6bf06c67e5dc3887c/3cf57464da3c3279-93/s250x400/4671cb567a559366f4396bcc61678223267a019b.pnj" width="300" </p>
 
-<p align="center"> ꒰ byi ꒱ i'm incredibly inactive due to school. if you have any form of contact with me, however, you may ask for me to go on. i may be a bit distant, but don't take it personally. i tend to act like it subconsciously. c+h is always okay if i'm not with anybody, but w2i as i'm often off-tab. i ship both phainaxa and phaidei, and i'm not interested in arguing about either because they're both "shit out of the same ass" to me.
+<p align="center"> ꒰ byi ꒱ i'm incredibly inactive due to school. if you have any form of contact with me, however, you may ask for me to go on. i may be a bit distant, but don't take it personally. i tend to act like it subconsciously. c+h is always okay if i'm not with anybody, but w2i as i'm often off-tab. i ship both phainaxa and phaidei, not interested in arguing about either because they're both "shit out of the same ass" to me.
 <p align="center"> ꒰ dni ꒱ basic dni, ideally >14 or <20 but i do make exceptions with oomfs. extended stuff is in my strawpage.
 
 <p align="center"> <img src="https://64.media.tumblr.com/09d7bf5bbaf5edc00a1d30e323253c7e/da046f06ae5bce8e-64/s400x600/383fef20f56f48aa293c3a9104ef724de69c6f54.gifv" </p>
