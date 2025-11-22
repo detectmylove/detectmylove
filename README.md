@@ -18,4 +18,4 @@
 
 <div align="center">
   
-[1 - kassgen...](https://www.tumblr.com/kassgender/740869831392378880/thats-it-joker?source=share) ᭪ [2 - twinkfrot...](https://www.tumblr.com/twinkfrottage/782676654336229376/cash-app-tip-jar?source=share) ᭪ [3 - dizzy-li...](https://www.tumblr.com/dizzy-lights/726212972791431168/goro-akechi-themed-golden-rentry-graphics-not-a?source=share)
+[1 - nanakoro...](https://www.tumblr.com/nanakorobiyaokii/799456506140573696/𝖠𝖭𝖠𝖷𝖠𝖦𝖮𝖱𝖠𝖲-𝖧𝖲𝖱-𝖠𝗇𝗂𝗆𝖺𝗍𝖾𝖽-𝖲𝗁𝗈𝗋𝗍-𝖧𝖾𝗅𝗅𝗈-𝖶𝗈𝗋𝗅𝖽) ᭪ [2 - twinkfrot...](https://www.tumblr.com/twinkfrottage/782676654336229376/cash-app-tip-jar?source=share) ᭪ [3 - dizzy-li...](https://www.tumblr.com/dizzy-lights/726212972791431168/goro-akechi-themed-golden-rentry-graphics-not-a?source=share)
