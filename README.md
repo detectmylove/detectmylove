@@ -1,16 +1,17 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=detectmylove&label=>_cases_uncovered_𓂃🖊&style=plastic&color=98FF98" </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=detectmylove&label=>_assignments_graded_𓂃🖊&style=plastic&color=98FF98" </p>
   
 <div align="center">
 
 <p align="center"> <img src="https://64.media.tumblr.com/c0185e0104a3fb331c163ff621a66f89/80c550fe6cbeeb6d-1f/s400x600/2e08d2791f9e32ba7afc59b6b2062a7b4edc1024.pnj" width="500" </p>
-<p align="center"> you may refer to me as ADRIENNE or CROW! i use they / he / prince pronouns.
-<p align="center"> things i like are the persona series, hyv games, pop-punk, and phighting.
-<p align="center"> i do yumeship, but i'm more or less okay with sharing as long as you don't talk about some of my f/o's publicly or with me (the ones in question are on my strawpage). kins of my f/o's OR people who yume my kins are still welcome to interact, if they so wish.
+<p align="center"> you may refer to me as MIKAELA or MIKA. i'm 16 and use he/they pronouns.
+<p align="center"> things i currently like are kaiju no 8, hyv games, pop-punk bands, and phighting.
+<p align="center"> i don't accept friend requests on pt, but you can follow me on here or ask for my disc if you so wish.
+<p align="center"> my strawpage was mostly made for my instagram since my irls follow me, but it still more or less applies.
   
 <p align="center"> <img src="https://64.media.tumblr.com/39e7f918c2a89ba6bf06c67e5dc3887c/3cf57464da3c3279-93/s250x400/4671cb567a559366f4396bcc61678223267a019b.pnj" width="300" </p>
 
-<p align="center"> ꒰ byi ꒱ i'm incredibly inactive due to school. if you have any form of contact with me, you may ask for me to go on. i may zone out mid-conversation. i might be a bit distant if we just met. c+h is always okay if i'm not with anybody, but w2i as i can be off-tab.
-<p align="center"> ꒰ dni ꒱ basic dni, ideally >13 or <20 but i do make exceptions with oomfs. extended stuff is in my strawpage.
+<p align="center"> ꒰ byi ꒱ i'm incredibly inactive due to school. if you have any form of contact with me, however, you may ask for me to go on. i may be a bit distant, but don't take it personally. i tend to act like it subconsciously. c+h is always okay if i'm not with anybody, but w2i as i'm often off-tab. i ship both phainaxa and phaidei, and i'm not interested in arguing about either because they're both "shit out of the same ass" to me.
+<p align="center"> ꒰ dni ꒱ basic dni, ideally >14 or <20 but i do make exceptions with oomfs. extended stuff is in my strawpage.
 
 <p align="center"> <img src="https://64.media.tumblr.com/09d7bf5bbaf5edc00a1d30e323253c7e/da046f06ae5bce8e-64/s400x600/383fef20f56f48aa293c3a9104ef724de69c6f54.gifv" </p>
 
