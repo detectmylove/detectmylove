@@ -1,8 +1,6 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=detectmylove&label=>_cases_uncovered_𓂃🖊&style=plastic&color=98FF98" </p>
   
 <div align="center">
-  
-![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=jhmyaro1c0u18xmutf9nljjx5&count=1&width=900)
 
 <p align="center"> <img src="https://64.media.tumblr.com/c0185e0104a3fb331c163ff621a66f89/80c550fe6cbeeb6d-1f/s400x600/2e08d2791f9e32ba7afc59b6b2062a7b4edc1024.pnj" width="600" </p>
 <p align="center"> you may refer to me as ADRIENNE or CROW! i use they / he / prince pronouns.
