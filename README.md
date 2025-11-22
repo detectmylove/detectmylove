@@ -14,7 +14,7 @@
 <p align="center"> ꒰ byi ꒱ i'm incredibly inactive due to school. if you have any form of contact with me, you may ask for me to go on. i may zone out mid-conversation. i might be a bit distant if we just met. c+h is always okay if i'm not with anybody, but w2i as i can be off-tab.
 <p align="center"> ꒰ dni ꒱ basic dni, ideally >13 or <20 but i do make exceptions with oomfs. extended stuff is in my strawpage.
 
-<p align="center"> <img src="https://64.media.tumblr.com/0e7b570ede03d68d831025281ce4acaa/112859935699f0aa-c5/s400x600/739de4e6b2e46afdd72805fa1f6f25c92f73b267.gifv" </p>
+<p align="center"> <img src="https://64.media.tumblr.com/09d7bf5bbaf5edc00a1d30e323253c7e/da046f06ae5bce8e-64/s400x600/383fef20f56f48aa293c3a9104ef724de69c6f54.gifv" </p>
 
 <div align="center">
   
