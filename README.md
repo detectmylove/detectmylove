@@ -4,9 +4,10 @@
 
 <p align="center"> <img src="https://64.media.tumblr.com/c0185e0104a3fb331c163ff621a66f89/80c550fe6cbeeb6d-1f/s400x600/2e08d2791f9e32ba7afc59b6b2062a7b4edc1024.pnj" width="500" </p>
 <p align="center"> you may refer to me as MIKAELA or MIKA. i'm 16 and use he/they pronouns.
-<p align="center"> things i currently like are kaiju no. 8, hyv games, pop-punk bands, and phighting.
+<p align="center"> things i currently like are kaiju no. 8, hyv games, pop-punk bands, and dispatch.
 <p align="center"> i don't accept friend requests on pt, but you can follow me on here or ask for my disc if you so wish.
 <p align="center"> my strawpage was mostly made for my instagram since my irls follow me, but it still more or less applies.
+<p align="center"> i mostly "people watch" as i get intimidated by others rather easily (it's silly, believe me i know,) but i don't mind if you interact first. actually, i prefer if you do so.
   
 <p align="center"> <img src="https://64.media.tumblr.com/39e7f918c2a89ba6bf06c67e5dc3887c/3cf57464da3c3279-93/s250x400/4671cb567a559366f4396bcc61678223267a019b.pnj" width="300" </p>
 
