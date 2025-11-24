@@ -7,6 +7,7 @@
 <p align="center"> things i currently like are kaiju no. 8, gachiakuta, hyv games, and pop-punk bands.
 <p align="center"> i don't accept friend requests on pt, but you can follow me on here or ask for my $\color{#44FFBB}{disc}$ if you so wish.
 <p align="center"> i mostly "people watch", but feel free to interact. i don't hate talking, i just rarely have anything to say.
+<p align="center"> i know i seem intimidating but i promise i'm not (my strawpage is evident of that. i'm a very silly... boything?)
   
 <p align="center"> <img src="https://64.media.tumblr.com/39e7f918c2a89ba6bf06c67e5dc3887c/3cf57464da3c3279-93/s250x400/4671cb567a559366f4396bcc61678223267a019b.pnj" width="300" </p>
 
