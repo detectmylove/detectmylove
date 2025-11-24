@@ -4,7 +4,7 @@
 
 <p align="center"> <img src="https://64.media.tumblr.com/c0185e0104a3fb331c163ff621a66f89/80c550fe6cbeeb6d-1f/s400x600/2e08d2791f9e32ba7afc59b6b2062a7b4edc1024.pnj" width="500" </p>
 <p align="center"> you may refer to me as $\color{#3EB489}{MIKAELA}$ or $\color{#3EB489}{MIKA}$. i'm 16 and use $\color{#ADEBB3}{he}$/they pronouns.
-<p align="center"> things i currently like are kaiju no. 8, hyv games, pop-punk bands, and dispatch.
+<p align="center"> things i currently like are kaiju no. 8, gachiakuta, hyv games, and pop-punk bands.
 <p align="center"> i don't accept friend requests on pt, but you can follow me on here or ask for my $\color{#44FFBB}{disc}$ if you so wish.
 <p align="center"> i mostly "people watch", but feel free to interact. i don't hate talking, i just rarely have anything to say.
   
