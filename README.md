@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=detectmylove&label=>_assignments_graded_𓂃🖊&style=plastic&color=98FF98" </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=detectmylove&label=>_messages_sent_✉&style=plastic&color=yellow" </p>
   
 <div align="center">
 
