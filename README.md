@@ -3,16 +3,15 @@
 <div align="center">
 
 <p align="center"> <img src="https://64.media.tumblr.com/c0185e0104a3fb331c163ff621a66f89/80c550fe6cbeeb6d-1f/s400x600/2e08d2791f9e32ba7afc59b6b2062a7b4edc1024.pnj" width="500" </p>
-<p align="center"> you may refer to me as $\color{#3EB489}{MIKAELA}$ or $\color{#3EB489}{MIKA}$. i'm 16 and use $\color{#ADEBB3}{he}$/they pronouns.
+<p align="center"> my name is $\color{#3EB489}{MIKAELA}$, but please call me $\color{#3EB489}{MIKA}$! i'm 17 and use $\color{#ADEBB3}{he}$/they pronouns.
 <p align="center"> things i currently like are kaiju no. 8, gachiakuta, hyv games, and pop-punk bands.
 <p align="center"> i don't accept friend requests on pt, but you can follow me on here or ask for my $\color{#44FFBB}{disc}$ if you so wish.
-<p align="center"> i mostly "people watch", but feel free to interact. i don't hate talking, i just rarely have anything to say.
-<p align="center"> i know i seem intimidating but i promise i'm not (my strawpage is evident of that. i'm a very silly... boything?)
+<p align="center"> i mostly "people watch", but feel free to interact! just note that i can be quiet if i haven't warmed up to you.
   
 <p align="center"> <img src="https://64.media.tumblr.com/39e7f918c2a89ba6bf06c67e5dc3887c/3cf57464da3c3279-93/s250x400/4671cb567a559366f4396bcc61678223267a019b.pnj" width="300" </p>
 
-<p align="center"> ꒰ $\color{#98FBCB}{byi}$ ꒱ i'm incredibly inactive due to school. if you have any form of contact with me, however, you may ask for me to go on. i may be a bit distant, but don't take it personally. i tend to act like it subconsciously. $\color{#00FFBA}{c+h}$ is always okay if i'm not with anybody, but $\color{#00FFBA}{w2i}$ as i'm often off-tab. i ship both phainaxa & myphai, not interested in arguing about either bec. they're both "shit out of the same ass" to me.
-<p align="center"> ꒰ $\color{#98FBCB}{dni}$ ꒱ basic dni, ideally >14 or <19 but i do make exceptions with oomfs. extended stuff is in my $\color{#6EA893}{strawpage}$ / $\color{#6EA893}{carrd}$.
+<p align="center"> ꒰ $\color{#98FBCB}{byi}$ ꒱ i'm incredibly inactive due to school. if you have any form of contact with me, you can ask for me to go on! i may be a bit distant, but don't take it personally. i tend to act like it subconsciously. $\color{#00FFBA}{c+h}$ is always okay if i'm not with anybody, but $\color{#00FFBA}{w2i}$ as i'm often off-tab. i love love LOVE illuflins, but idm if you ship varflins. i like them, although i favor it as yuri. i'm undiagnosed with a few things, but currently in therapy.
+<p align="center"> ꒰ $\color{#98FBCB}{dni}$ ꒱ basic dni, ideally >15 or <19 but i do make exceptions with oomfs. extended stuff is in my $\color{#6EA893}{strawpage}$ / $\color{#6EA893}{carrd}$.
 
 <p align="center"> <img src="https://64.media.tumblr.com/09d7bf5bbaf5edc00a1d30e323253c7e/da046f06ae5bce8e-64/s400x600/383fef20f56f48aa293c3a9104ef724de69c6f54.gifv" </p>
 
