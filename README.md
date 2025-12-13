@@ -4,7 +4,7 @@
   
 <div align="center">
 
-<p align="center"> <img src="https://i.postimg.cc/qMhhgfw6/faelight_1.png" width="500" </p>
+<p align="center"> <img src="https://i.postimg.cc/qMhhgfw6/faelight_1.png" width="600" </p>
 <p align="center"> my name is $\color{#8b80ab}{MIKAELA}$, but please call me $\color{#8b80ab}{MIKA}$! i'm 17 and use $\color{#d2af77}{he}$/they pronouns.
 <p align="center"> things i currently like are kaiju no. 8, gachiakuta, hyv games, and pop-punk bands.
 <p align="center"> i don't accept friend requests on pt, but you can follow me on here or ask for my $\color{#fbe9a6}{disc}$ if you so wish.
@@ -16,7 +16,7 @@
 <p align="center"> ꒰ $\color{#f7c556}{dni}$ ꒱ basic dni, ideally >15 or <19 but i do make exceptions with oomfs. extended stuff is in my $\color{#cd8725}{strawpage}$ / $\color{#cd8725}{carrd}$.
 <p align="center"> $\color{#f7c556}{p.s.}$ don't try to get $\color{#e59c2a}{"close"}$ w/ me just bc i kin your f/o or fave, i'm aro + uncomfy w/ any form of $\color{#e59c2a}{intimacy}$ unless we're good friends. 
 
-<p align="center"> <img src="https://i.postimg.cc/FRWQZ6B3/faelight-3.png" width="500" </p>
+<p align="center"> <img src="https://i.postimg.cc/FRWQZ6B3/faelight-3.png" width="600" </p>
 
 <div align="center">
   
