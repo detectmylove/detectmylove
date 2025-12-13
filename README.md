@@ -16,7 +16,7 @@
 <p align="center"> ꒰ $\color{#f7c556}{dni}$ ꒱ basic dni, ideally >15 or <19 but i do make exceptions with oomfs. extended stuff is in my $\color{#cd8725}{strawpage}$ / $\color{#cd8725}{carrd}$.
 <p align="center"> $\color{#f7c556}{p.s.}$ don't try to get $\color{#e59c2a}{"close"}$ w/ me just bc i kin your f/o or fave, i'm aro + uncomfy w/ any form of $\color{#e59c2a}{intimacy}$ unless we're good friends. 
 
-<p align="center"> <img src="https://i.postimg.cc/FRWQZ6B3/faelight-3.pn" width="600" </p>
+<p align="center"> <img src="https://i.postimg.cc/FRWQZ6B3/faelight-3.png" width="600" </p>
 
 <div align="center">
   
