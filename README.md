@@ -20,7 +20,7 @@
 
 <div align="center">
   
-[1 - nyat...](https://x.com/nyatsumeii/status/1997984412827562405?s=20) ᭪ [2 - nnar...](https://www.tumblr.com/nnarumiitsu/799960038819102720/flins-web-decor-but-ill-rot-like-a-dog?source=share) ᭪ [3 - riuz...](https://x.com/riuzouu/status/1996929170761568576?s=20) ᭪ [4 - sely...](https://www.tumblr.com/selysie/769717730385477632/banner-masks-by-me?source=share) ᭪ [5 - sely...](https://www.tumblr.com/selysie/771364890058309632/꣖-%E3%85%A4banner-masks-again-𓈒?source=share)
+[1 - nyat...](https://x.com/nyatsumeii/status/1997984412827562405?s=20) ᭪ [2 - truc...](https://www.tumblr.com/truciy) ᭪ [3 - omce...](https://x.com/i/status/1999806284242317805) ᭪ [4 - sely...](https://www.tumblr.com/selysie/769717730385477632/banner-masks-by-me?source=share) ᭪ [5 - sely...](https://www.tumblr.com/selysie/771364890058309632/꣖-%E3%85%A4banner-masks-again-𓈒?source=share)
 
 
 p.s. add my airbuds (@ $\color{#bc4630}{yuumika}$)
