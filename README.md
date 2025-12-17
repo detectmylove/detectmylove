@@ -12,7 +12,7 @@
   
 <p align="center"> <img src="https://64.media.tumblr.com/430573eebb10de29443f1d30b54ef88a/142e64d2c252d042-2d/s400x600/014e40b25b87cb0c28965ba2bd5484bfb1eb9542.pnj" width="300" </p>
 
-<p align="center"> ꒰ $\color{#f7c556}{byi}$ ꒱ i'm incredibly inactive due to school. if you have any form of contact with me, you can ask for me to go on! i may be a bit distant, but don't take it personally. i tend to act like it subconsciously. $\color{#a0938f}{c+h}$ is always okay if i'm not with anybody, but $\color{#a0938f}{w2i}$ as i'm often off-tab. i love illuflins, but idm if you ship varflins. i like them, although as yuri. i'm undiagnosed with a few things, but currently in therapy.
+<p align="center"> ꒰ $\color{#f7c556}{byi}$ ꒱ i'm incredibly inactive due to school. if you have any form of contact with me, you can ask for me to go on! i may be a bit distant, but don't take it personally; i tend to act like it subconsciously. $\color{#a0938f}{c+h}$ is always okay if i'm not with anybody, but $\color{#a0938f}{w2i}$ as i'm often off-tab. i love illuflins, but idm if you ship varflins. i like them, although as yuri. i'm undiagnosed with a few things, but currently in therapy.
 <p align="center"> ꒰ $\color{#f7c556}{dni}$ ꒱ basic dni, ideally >15 or <19 but i do make exceptions with oomfs. extended stuff is in my $\color{#cd8725}{strawpage}$ / $\color{#cd8725}{carrd}$.
 
 <p align="center"> <img src="https://i.postimg.cc/sf5tYhsh/faelight-3.png" width="600" </p>
