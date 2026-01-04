@@ -1,25 +1,11 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=detectmylove&label=>_messages_sent_✉&style=plastic&color=yellow" </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=detectmylove&label=ratniki&style=plastic&color=yellow" </p>
 
-[![My Last.fm](https://lastfm-recently-played.vercel.app/api?user=meltdwn&count=1&show_user=header&header_size=normal_stats_only&loved=true&loved_style=2&width=1000&bg_color=19161f)](https://www.last.fm/user/meltdwn)
+  [![My Last.fm](https://lastfm-recently-played.vercel.app/api?user=meltdwn&count=1&show_user=header&header_size=normal_stats_only&loved=true&loved_style=2&width=1000)](https://www.last.fm/user/meltdwn)
   
 <div align="center">
-
-<p align="center"> <img src="https://i.postimg.cc/qMhhgfw6/faelight_1.png" width="600" </p>
-<p align="center"> my name is $\color{#8b80ab}{MIKAELA}$, but please call me $\color{#8b80ab}{MIKA}$! i'm 17 and use $\color{#d2af77}{he}$/they pronouns.
-<p align="center"> things i currently like are kaiju no. 8, gachiakuta, hyv games, and pop-punk bands.
-<p align="center"> i don't accept friend requests on pt, but you can follow me on here or ask for my $\color{#fbe9a6}{disc}$ if you so wish.
-<p align="center"> i mostly "people watch", but feel free to interact! just note that i can be quiet if i haven't warmed up to you.
+<img width="600" height="600" alt="image_2026-01-03_235207194" src="https://github.com/user-attachments/assets/94fe047b-88a5-4f8b-8d6b-cf9d04c27132" /> 
   
-<p align="center"> <img src="https://64.media.tumblr.com/430573eebb10de29443f1d30b54ef88a/142e64d2c252d042-2d/s400x600/014e40b25b87cb0c28965ba2bd5484bfb1eb9542.pnj" width="300" </p>
-
-<p align="center"> ꒰ $\color{#f7c556}{byi}$ ꒱ i'm incredibly inactive due to school. if you have any form of contact with me, you can ask for me to go on! i may be a bit distant, but don't take it personally; i tend to act like it subconsciously. $\color{#a0938f}{c+h}$ is always okay if i'm not with anybody, but $\color{#a0938f}{w2i}$ as i'm often off-tab. i love illuflins, but idm if you ship varflins. i like them, although as yuri. i'm undiagnosed with a few things, but currently in therapy.
-<p align="center"> ꒰ $\color{#f7c556}{dni}$ ꒱ basic dni, ideally >15 or <19 but i do make exceptions with oomfs. extended stuff is in my $\color{#cd8725}{strawpage}$ / $\color{#cd8725}{carrd}$.
-
-<p align="center"> <img src="https://i.postimg.cc/sf5tYhsh/faelight-3.png" width="600" </p>
+  [art credit](https://x.com/muimi575/status/2002000850282291549?s=20) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [pronouns](https://pronouns.cc/@blanchette) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [atabook](https://phainaxa.atabook.org) 
 
 <div align="center">
-  
-[1 - nyat...](https://x.com/nyatsumeii/status/1997984412827562405?s=20) ᭪ [2 - truc...](https://www.tumblr.com/truciy) ᭪ [3 - omce...](https://x.com/i/status/1999806284242317805) ᭪ [4 - sely...](https://www.tumblr.com/selysie/769717730385477632/banner-masks-by-me?source=share) ᭪ [5 - sely...](https://www.tumblr.com/selysie/771364890058309632/꣖-%E3%85%A4banner-masks-again-𓈒?source=share)
 
-
-p.s. add my airbuds (@ $\color{#bc4630}{yuumika}$)
