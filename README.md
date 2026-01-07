@@ -9,4 +9,4 @@
 
 <div align="center">
 
-> formerly @aoyagiis questions will Not be answered, actually
+> carrd and strawpage are done but may be revamped this week; i want to make my everything faelight i fear.
