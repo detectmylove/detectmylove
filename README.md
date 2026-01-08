@@ -9,4 +9,4 @@
 
 <div align="center">
 
-> carrd and strawpage are done but may be revamped this week; i want to make my everything faelight i fear.
+> revamping strawpage rn !! refer to carrd until done ^_^
