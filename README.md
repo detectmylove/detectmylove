@@ -9,4 +9,4 @@
 
 <div align="center">
 
-> revamping strawpage rn !! refer to carrd until done ^_^
+> revamping strawpage rn !! refer to carrd until done ^_^ send me thoughts and prayers in my ata
