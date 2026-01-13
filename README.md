@@ -6,3 +6,5 @@
 <img width="600" height="600" alt="image_2026-01-03_235207194" src="https://github.com/user-attachments/assets/94fe047b-88a5-4f8b-8d6b-cf9d04c27132" /> 
   
   [art credit](https://x.com/muimi575/status/2002000850282291549?s=20) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [pronouns](https://pronouns.cc/@faelight) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [atabook](https://phainaxa.atabook.org) 
+
+> faelight of the day by [nyatsumeii on twt](https://x.com/nyatsumeii/status/2011102760863928763?s=20)
