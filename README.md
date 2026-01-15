@@ -7,4 +7,4 @@
   
   [art credit](https://x.com/muimi575/status/2002000850282291549?s=20) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [pronouns](https://pronouns.cc/@faelight) ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  [atabook](https://phainaxa.atabook.org) 
 
-> faelight of the day by [nyatsumeii on twt](https://x.com/nyatsumeii/status/2011102760863928763?s=20)
+> faelight of the day by [ffe66f on twt](https://x.com/FFE66F/status/2011528940310114785?s=20)
